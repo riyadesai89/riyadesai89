@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Computers, Development**
 
-- 📫 How to reach me **driya5748@gmail.com**
+- 📫 How to reach me **riyadesai089@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
